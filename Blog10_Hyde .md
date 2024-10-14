@@ -1,0 +1,5 @@
+Cammy Hyde   
+Prof. April Flynn   
+ENGCMP 0610  
+October 14th, 2024  
+	My project will be called “The Face of Beauty” and will be a collage of things that are not considered conventional beauty in today’s society. The collage will be constructed in an Instagram feed template, as if you clicked on a profile and saw someone’s instagram feed. The collage will contain nine pictures with the one in the middle being a mirror with the title inside. Around it will include a picture of a big nose, crooked teeth, stomach rolls, back rolls, a model in a wheelchair, acne, and a lazy eye. Rhetorically, I’m hoping this piece will have a “beauty is in the eye of the beholder” theme, spotlighting features society tends to hide or shun. Especially by formatting these images as an Instagram feed, I’m hoping to invoke feelings of engaging with social media, which is notorious for perpetuating conventional beauty standards. All of these things are things society doesn’t consider beautiful, so I’m hoping my project will help the audience appreciate these features and make them question their own beauty standards. 
